@@ -10,5 +10,5 @@
 
 ### Contact
 
-**If you have any questions please contact us lijunjie@junjieli.com.**
+**If you have any questions please contact us multivision.support@junjieli.com.**
 
